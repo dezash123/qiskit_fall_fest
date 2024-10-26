@@ -1,2 +1,2 @@
-Team Name: Girvin's Goblins
+Team Name: **Girvin's Goons**
 Teammates: Desmond Mehta, Lucas Papamitsakis
